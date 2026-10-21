@@ -2,7 +2,7 @@
 this tragedy this travesty
 this monumental fallacy
 i mourn the grief
-i churn my peace
+yet churn my peace
 to fit and strive accordingly 
 but nothing seems to stick
 
