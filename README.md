@@ -4,5 +4,5 @@ this monumental fallacy\
 i mourn the grief\
 yet churn my peace\
 to fit and strive accordingly\
-but nothing seems to stick\
+but nothing seems to stick
 
